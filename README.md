@@ -1,6 +1,10 @@
 # KathrynMeloniEsq
 Kathryn Meloni WordPress Site
 
+New Updates: see update requests directory
+1. Add links from other sites for media articles.
+2. Content Updates and changes 
+
 Table of Cotents
 1. Website Fact Sheet
 2. Content Pages
