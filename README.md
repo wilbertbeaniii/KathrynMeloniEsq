@@ -1,5 +1,17 @@
 # KathrynMeloniEsq
 Kathryn Meloni WordPress Site
+New Update request 06/10/2021
+
+1. End of my profile:
+Please add the following:
+Further, she served as Executive Director of Grands Stepping Up, a non-profit corporation to assist Grandparents (and other kinship relations) who have custody of their grandchildren from 2020-2021; she incorporated the non-profit, prepared bylaws, and helped to aid in getting the organization up and running.
+ 
+2. Under Awards, please add
+2015 Main Line Top Lawyers
+2017 Reader’s  Choice Daily Times Best Lawyers
+ 
+3.Sue wants a different picture which I will provide
+Kathryn
 
 New Updates: see update requests directory
 1. Add links from other sites for media articles.
